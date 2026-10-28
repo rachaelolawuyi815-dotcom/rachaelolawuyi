@@ -3,7 +3,7 @@
 
 **Open to customer service roles and business enquiries.**
 
-I’m a London-based professional with nearly two years of experience supporting service delivery in busy hospitality venues. I anticipate team needs, check deliveries, and keep service areas organised under pressure. I bring that same attention and follow-through to opportunities in customer service and business support.
+I’m a London-based professional with experience since 2024 supporting service delivery in busy hospitality venues. I anticipate team needs, check deliveries, and keep service areas organised under pressure. I bring that same attention and follow-through to opportunities in customer service and business support.
 
 > Listening matters. What you do after listening makes the difference.
 
